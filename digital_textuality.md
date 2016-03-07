@@ -112,11 +112,11 @@ Institute for the Future of the Book.* 2008.
 17. Derrida, Jacques. [Paper Machine](http://www.worldcat.org/title/paper-machine/), 2005.
 *requested for pickup at GC library*
 
-#### Exchange on Ed Folsom's "Database as Genre" in **PMLA**:
+*Exchange on Ed Folsom's "Database as Genre" in **PMLA**:*
 
 18. Folsom, Ed. ["Database as Genre: The Epic Transformation of Archives."](http://www.mlajournals.org/doi/pdf/10.1632/pmla.2007.122.5.1571) **PMLA** 122.5 (October 2007): 1571-1579.
 
-* Response to Ed Folsom's "Database as Genre: The Epic Transformation of Archives."
+Responses to Ed Folsom's "Database as Genre: The Epic Transformation of Archives."
 
 19. "Against Thinking," Peter Stallybrass
 
