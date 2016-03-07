@@ -27,32 +27,44 @@ Advisor: Professor Wayne Koestenbaum
 
 * Eliade, Mircea. [Shamanism: Archaic Techniques of Ecstasy](http://smile.amazon.com/Shamanism-Archaic-Techniques-Ecstasy-Bollingen/), 2004.
 
-Carruthers, Mary. 
+* Carruthers, Mary. 
 
-Michel Leiris 
+* Michel Leiris 
 
-Proust
+* Proust
 
 * Otto, Rudolf. [The Idea of the Holy: An Inquiry into the Non-Rational Factor in the Idea of the Divine and its Relation to the Rational](http://www.worldcat.org/title/idea-of-the-holy-an-inquiry-into-the-non-rational-factor-in-the-idea-of-the-divine-and-its-relation-to-the-rational/oclc/2680193&referer=brief_results), 1928.
 
 * Benjamin, Walter. ["Theses on the Philosophy of History"](http://smile.amazon.com/Illuminations-Essays-Reflections-Walter-Benjamin/), *Illuminations," ed. Hannah Arendt, trans. Harry Zohn. 1969.
 
 
-## Mysticism and Experience
+## Mysticism in Literature
 
 * Benjamin, Walter. [On Hashish](http://smile.amazon.com/Hashish-Walter-Benjamin/)  ed. Howard Eiland, intro Marcus Boon. 2006.
 
-* Spurgeon, Caroline F. E. [Mysticism in English Literature](http://www.gutenberg.org/files/11935/11935-h/11935-h.htm), 1913.
+* Spurgeon, Caroline F. E. [Mysticism in English Literature](http://www.gutenberg.org/files/11935/11935-h/11935-h.htm), 1913. **available online**
 
 * Leonard, Philip. [Trajectories of Mysticism in Theory and Literature](http://www.worldcat.org/title/trajectories-of-mysticism-in-theory-and-literature/oclc/41981884&referer=brief_results), 2000.
+*requested ILL*
 
 * Grant, Patrick. [Literature of Mysticism in Western Tradition](http://www.worldcat.org/title/literature-of-mysticism-in-western-tradition/oclc/8431283&referer=brief_results), 1983.
 
 * Johnson, George M. [Mourning and Mysticism in First World War Literature and Beyond: Grappling with Ghosts](http://www.worldcat.org/title/mourning-and-mysticism-in-first-world-war-literature-and-beyond-grappling-with-ghosts/oclc/898925014&referer=brief_results), 2015.
+*requested ILL*
 
 * Beitchman, Philip. [The View From Nowhere: Essays in Literature, Mysticism, and Philosophy](http://www.worldcat.org/title/view-from-nowhere-essays-in-literature-mysticism-and-philosophy/), 2001.
 *Graduate Center - Stacks - B 66 .B45 2001*
 
-Bataille, Georges. [Inner Experience](smile.amazon.com/Inner-Experience-SUNY-Series-Intersections/dp/0887066356) 1988.
+* Bataille, Georges. [Inner Experience](smile.amazon.com/Inner-Experience-SUNY-Series-Intersections/dp/0887066356) 1988.
+*requested for pickup at GC library*
 
-Duncan's H.D.
+* [Encyclopedia of religious and spiritual development](http://www.worldcat.org/title/encyclopedia-of-religious-and-spiritual-development/) eds. Elizabeth M. Dowling and W. George Scarlett, 2006.
+*requested ILL*
+
+* Rothenberg, Jerome. [Technicians of the Sacred: A Range of Poetries from Africa, America, Asia, and Oceana](http://www.worldcat.org/title/technicians-of-the-sacred-a-range-of-poetries-from-africa-america-asia-oceania/), 1968.
+*owned*
+
+* Adair-Toteff, Christopher. ["Max Weber's Mysticism."](http://www.jstor.org/stable/23998865?seq=1#page_scan_tab_contents). 
+*Article*
+
+* Duncan's H.D.
