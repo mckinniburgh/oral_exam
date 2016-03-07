@@ -18,6 +18,12 @@ Advisor: Professor Ammiel Alcalay
 
 * Diane di Prima on H.D., *Lost and Found chapbook*.
 
+* Genette, Gerard. [Palimpsests: Literature in the Second Degree](http://www.worldcat.org/title/palimpsests-literature-in-the-second-degree/), 1997.
+*requested for pickup at GC library*
+
+* Nichols, Miriam. [Radical Affections: Essays on the Poetics of Outside](http://www.worldcat.org/title/radical-affections-essays-on-the-poetics-of-outside/), 2010.
+*owned*
+
 
 ### Primary sources:
 
@@ -56,5 +62,7 @@ Advisor: Professor Ammiel Alcalay
 * Amiri Baraka 
 
 * Denise Levertov
+
+* John Wieners
 
 * Michael McClure
